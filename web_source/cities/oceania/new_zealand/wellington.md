@@ -6,7 +6,7 @@ Country: New Zealand (Oceania)
 
 FIXME
 
-### What King and Queen would loveto see there
+### What King and Queen would love to see there
 
 [Wellington Botanic Garden](https://www.newzealand.com/uk/feature/wellington-botanic-garden/)
 
