@@ -4,12 +4,13 @@ Country: Albania (Europe)
 
 ##### Also known as:
 
-FIXME
+Berati
 
 ### What we would like to see there
 
-FIXME
+Berat Castle is a must see!
+
 
 ### Extra information
 
-- Link to [wikipedia](https://wikipedia.org/FIXME)
+- Link to [wikipedia](https://en.wikipedia.org/wiki/Berat)
